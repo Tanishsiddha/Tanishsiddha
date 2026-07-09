@@ -2,6 +2,8 @@
 **DATA ANALYST**
 
 Email Me 👉 ✉️ [tanishsiddha123@gmail.com](mailto:tanishsiddha123@gmail.com) 
+
+
 LinkedIn 👉 💼 [linkedin.com/in/tanish-siddha](https://www.linkedin.com/in/tanish-siddha-053a13420)
 
 ---
